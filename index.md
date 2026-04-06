@@ -1,3 +1,2 @@
-# Welcome to my blog
-I will start with optimism though I will share some dark days of my life and thoughts as well.
-So I wrote the below some years ago.
+I will start with optimism though I will share some dark days of my life as well in the upcoming thoughts.
+So I wrote the below thoughts some years ago.
